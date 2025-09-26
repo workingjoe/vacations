@@ -1,4 +1,4 @@
-# vacations
+# *VACATIONS*
 ---
 # 2025 
 ## Oasis of the Seas, Royal Carribean
