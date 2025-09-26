@@ -50,6 +50,7 @@
 # 2017
 ## Navigator of the Seas, Royal Caribbean
 * 9-night Southern Caribbean from Miami
+* (Netherlands Antilles)
 * Nov-24 - Dec-3 2017
   * Labadee, Haiti
   * Willemstad, Curacao
