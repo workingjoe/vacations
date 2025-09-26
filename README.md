@@ -35,18 +35,34 @@
   * Costa Maya, MX
   * Cozumel, MX
   * Coco Cay, Bahamas
-    
+
+---
+# 2022
+## Norwegian Getaway, NCL
+* 7-day Western Caribbean from Port Canaveral
+* Oct-22 - Oct-29 2022
+  * Great Stirrup Cay, Bahamas
+  * St. Thomas, US Virgin Islands
+  * San Juan, Puerto Rico
+  * Puerto Plata, Dominican Republic
+     
 ---
 # 2017
 ## Navigator of the Seas, Royal Caribbean
-* 9-night Southern Caribbean
-* Nov-24 - Dec-3 2023
-  * out of Miami
+* 9-night Southern Caribbean from Miami
+* Nov-24 - Dec-3 2017
   * Labadee, Haiti
   * Willemstad, Curacao
   * Kralendijk, Bonaire
   * Oranjestad, Aruba
-  * 
-
-
-
+   
+---
+# 2016
+## Norwegian Getaway, NCL
+* 7-Day Western Caribbean From Miami
+* Nov-27 - Dec-2, 2016
+  * Roatan, Honduras
+  * Harvest Caye, Belize
+  * Costa Maya, MX
+  * Cozumel, MX
+  
