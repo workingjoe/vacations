@@ -20,7 +20,7 @@
 
 ---
 # 2023
-## Celebrity Solstice
+## Solstice, Celebrity Cruise Lines
 * 7-night Alaska Dawes Glacier (with Bobby/Linda)
 * May 26 - Jun 2 2023
   * Seattle, WA USA
